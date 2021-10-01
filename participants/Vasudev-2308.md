@@ -4,6 +4,6 @@
 
 **Github:** @Vasudev-2308
 
-**Quote:** *Simpl;icity is the Soul of Efficiency.*
+**Quote:** *Simplicity is the Soul of Efficiency.*
 
 ---
